@@ -166,7 +166,7 @@ I contadini prendono il nome dispregiativo di **_kulaki_**, cioè sfruttatori.
 
 Reparti interi di bolscevichi vennero mandati nelle campagne a requisire tutto il grano che trovavano, ma i contadini si ribellano: oltre 200 rivolte nell'estate del '18: praticamente una guerra civile dentro un'altra guerra civile.
 
-Intanto, per far fronte una volta per tutte ai bianchi, Lev Trockij, commissario di guerra, diede vita all'**Armata Rossa**, la quale necessitava di generali esperti che per sua sfortuna erano tutti bianchi: Trockij decise quindi di affiancare ad ogni generali non bolscevico, un commissario politico comunista, incaricato di sorvegliarne l'operato. Mogli e figli dei generali dovevano essere tenuti sotto custodia per accertarsi che i generali non giocassero brutti scherzi. Coloro che non volevano arruolarsi, finivano nei campi di concentramento.
+Intanto, per far fronte una volta per tutte ai bianchi, Lev Trockij, commissario di guerra, diede vita all'**Armata Rossa**, la quale necessitava di generali esperti che erano zaristi: Trockij decise quindi di affiancare ad ogni generali non bolscevico, un commissario politico comunista, incaricato di sorvegliarne l'operato. Mogli e figli dei generali dovevano essere tenuti sotto custodia per accertarsi che i generali non giocassero brutti scherzi. Coloro che non volevano arruolarsi, finivano nei campi di concentramento.
 
 Nel 1920 i rossi avevano praticamente vinto la guerra civile; tuttavia, il paese era in condizioni pessime: niente grano, poche produzioni, tanta fame e malcontento. Nascono quindi altre rivolte contadine (più significativa a Tambov, nella quale un vero e proprio esercito di partigiani infuriò contro i bolscevichi).
 
