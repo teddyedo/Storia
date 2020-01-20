@@ -3,7 +3,7 @@
 - **Pre prima guerra mondiale**
 
   - 1905 - Sconfitta dal Giappone
-  - 1905 - Istituita la Duma
+  - 1905 - Rivolte del popolo per il prezzo troppo alto dei beni di prima necessità nelle città che porta all'istituzione della Duma
 
 - **Durante la prima guerra mondiale**
 
