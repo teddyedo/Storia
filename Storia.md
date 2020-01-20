@@ -135,9 +135,9 @@ Il governo provvisorio, ancora esistente, organizza per il 12 novembre le elezio
 
 Lenin riteneva che solo la linea politica bolscevica fosse quella giusta per il proletariato: costui doveva capirlo e se non ci fosse riuscito, bisognava imporlo finchè esso non avesse compreso, anche con la forza. Ogni tentativo di dissenso, considerato controrivoluzionario, andava severamente punito.
 
-24 novembre, istituita la **Commissione straordinaria per la lotta contro la controrivoluzione e il sabotaggio.**. La cosa si restringe sempre più, fino a dichiarare che solo il partito bolscevico fosse perfettamente consapevole della meta cui il proletariato doveva tendere; tutti gli altri, vengono bollati come controrivoluzionari. Dittatura del proletariato -> dittatura del partito bolscevico.
+24 novembre, istituita la **Commissione straordinaria per la lotta contro la controrivoluzione e il sabotaggio.** La cosa si restringe sempre più, fino a dichiarare che solo il partito bolscevico fosse perfettamente consapevole della meta cui il proletariato doveva tendere; tutti gli altri, vengono bollati come controrivoluzionari. Dittatura del proletariato -> dittatura del partito bolscevico.
 
-3 marzo 1918 pace con la Germania nel trattato di Brest-Litovsk, persa l'Ucraina. Il trattato, e le sue durissime condizioni, generarono molto scalpore anche dentro al partito: Bucharin, sostenne l'idea di una guerra contro la Germania imperialista. Contari anche i socialisti rivoluzionari di sinistra guidati da **Marija Spiridonova**.
+3 marzo 1918 pace con la Germania nel trattato di Brest-Litovsk, persa l'Ucraina. Il trattato, e le sue durissime condizioni, generarono molto scalpore anche dentro al partito: Bucharin, sostenne l'idea di una guerra contro la Germania imperialista. Contrari anche i socialisti rivoluzionari di sinistra guidati da **Marija Spiridonova**.
 
 6 luglio 1918, mentre la Russia sta sprofondando nella guerra civile e i bolscevichi stanno prendendo le prime dure misure contro i contadini, i socialisti rivoluzionari di sinistra tentano un'insurrezione a Mosca contro il nuovo governo. Le insurrezioni continuarono per un bel po': il 30 agosto, Tanja Kaplan, spara a Lenin, ferendolo gravemente.
 
