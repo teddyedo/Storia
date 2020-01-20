@@ -159,7 +159,7 @@ L'inverno '17-'18 era stato particolarmente rigido; mancavano le risorse, c'era 
 
 ### Comunismo di guerra
 
-Per far fronte alle problematiche enormi della fame, Lenin attuò il cosiddetto **Comunismo di guerra**: una politica finalizzata a ottenere dai contadini russi tutto il grano possibile, a costo di requisirlo se gli agricolotri si fossero rifiutati di venderlo ai prezzi fissati dal governo (eccessivamente bassi).
+Per far fronte alle problematiche enormi della fame, Lenin attuò il cosiddetto **Comunismo di guerra**: una politica finalizzata a ottenere dai contadini russi tutto il grano possibile, a costo di requisirlo se gli agricoltori si fossero rifiutati di venderlo ai prezzi fissati dal governo (eccessivamente bassi).
 
 A causa della forte mancanza di cibo, si assiste ad una vera e propria migrazione di massa dei lavoratori verso le campagne (Pietrogrado nel '18 perse più della metà dei suoi operai), causando un forte rallentamento e disagi per le industrie, che servivano anche a produrre le armi per la guerra contro i bianchi. Per risolvere ciò, Lenin annunciò che "_tutti coloro che possiedono grano e non lo consegnano allo stato verranno dichiarati nemici del popolo."_
 I contadini prendono il nome dispregiativo di **_kulaki_**, cioè sfruttatori.
