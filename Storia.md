@@ -147,7 +147,7 @@ Svolta fondamentale: organizzato il **Terrore rosso**: 15.000 persone vengono as
 
 Dicembre 1917, alcuni generali dell'esercito russo decidono di ribellarsi al governo bolscevico e di dar vita ad un esercito volontario, **_i bianchi_**, opposti ai **_rossi_**.
 
-In seguito a continue insurrezioni da parte dei bianchi e dei loro sostenitori (stati europei che non volevano che Lenin avesse il potere), per paura che venissero liberati, il 16 lugliio 1918 lo zar Nicola II e la sua famiglia vengono giustiziati.
+In seguito a continue insurrezioni da parte dei bianchi e dei loro sostenitori (stati europei che non volevano che Lenin avesse il potere), per paura che venissero liberati, il 16 luglio 1918 lo zar Nicola II e la sua famiglia vengono giustiziati.
 
 Le due parti si immettono in una guerra truce e barbarica; se si voleva mettere fine alla guerra civile, una delle 2 parti avrebbe dovuto schiacciare l'altra.
 
