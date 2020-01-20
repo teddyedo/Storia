@@ -98,7 +98,7 @@ Spicca la figura di **Aleksandr Kerenskij** ministro della guerra e della marina
 
 Nel frattempo, i contadini si rivoltano contro i proprietari terrieri per obbligarli a cedere le loro terre; per paura di perdere _la loro parte_, i contadini-soldati scappano dalle trincee e si riversano verso est in un mare di gente. Il governo non riesce a fronteggiare il problema. Si aggiunge anche il problema dell'autonomia ucraina -> il 3 luglio il governo L'vov è costretto a dimettersi dai cadetti.
 
-3/4 luglio - Gli operai di Pietrogrado invadono la città e assiediano le sedi del soviete e del governo provvisorio. Lenin costretto a fugire in Finlandia, girava voce che i bolscevichi avessero agito al soldo della Germania.
+3/4 luglio - Gli operai di Pietrogrado invadono la città e assiediano le sedi del soviet e del governo provvisorio. Lenin costretto a fuggire in Finlandia, girava voce che i bolscevichi avessero agito al soldo della Germania.
 7 luglio, nasce il governo Kerenskij. Crea una specie di culto di sé, trasferisce il proprio ufficio nel Palazzo d'Inverno, sede della famiglia imperiale. Soviet sfrattato in un ex-collegio.
 
 Kornilov, consigliere di Kerenskij, mobilità l'esercito verso la capitale perché Kerenskij non aveva accettato alcune riforme da egli proposte. Il soviet interviene, richiedendo l'aiuto anche dei bolscevichi, liberati dalle carceri. 40.000 bolscevichi, muniti di armi, scendono in campo (nasce la prima forma dell'esercito di Lenin). Niente scontri, Kornilov arrestato.
