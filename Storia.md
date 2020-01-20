@@ -34,6 +34,7 @@
   - 4 marzo 1919 - Nasce la Terza Internazionale, o Comintern (internazionale comunista)
   - aprile 1920 - Guerra con la Polonia
   - 28 febbraio 1921 - rivolta dei marinai di Kronstadt
+  - 15 marzo 1921 - NEP
   - 18 marzo 1921 - Kronstadt capitola a causa di Lenin
   - dicembre 1922 - Nasce **l' Unione delle repubbliche socialiste sovietiche o URSS**.
   - 21 gennaio 1924 - Muore Lenin
