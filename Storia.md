@@ -62,7 +62,62 @@ In questa zona la Serbia, aveva intenzione di compiere un azione simile a quella
 
 Italia e Austria-Ungheria, preoccupate dell'espansionismo serbo, negarono a Belgrado l'accesso al mare e istituirono lo stato dell'**Albania**, frapposto tra Serbia e Adriatico. Ciò inasprì molto i rapporti tra Vienna e Belgrado, che sfocieranno in conseguenze molto gravi.
 
+# La Prima guerra mondiale
 
+Il **28 giugno 1914** a Sarajevo, capitale della Bosnia austriaca, un terrorista serbo-bosniaco **Gavrilo Princip**, uccise a colpi di pistola l'arciduca **Francesco Ferdinando d'Asburgo**, erede al trono dell'impero asburgico.
+
+L'attentato venne organizzato da un'associazione terroristica serba, *Mano nera*, si sostiene, proprio su direttiva dello stesso governo Serbo.
+
+Gli austriaci compresero subito che dietro a tutto ciò vi era la mano della Serbia, ma si resero conto che un intervento militare affrettato avrebbe portato alla sconfitta, in quanto la Serbia sarebbe stata appoggiata dalla Grande Russia. L'Austira si consultò prima con la Germania, il **5 luglio 1914**, la quale confermò il suo pieno appoggio al conflitto.
+
+Il **23 luglio** l'Austria manda un ultimatum alla Serbia, la quale avrebbe dovuto istituire una commissione d'inchiesta per scoprire chi c'era dietro all'assasinio dell'arciduca, ammettendo nella commissione anche alcuni delegati austriaci; avrebbe poi dovuto interrompere e vietare qualsiasi tipo di propaganda anti austriaca, licenziare i funzionari che avessero espresso sentimenti anti austriaci o nazionalistici.
+Fu proprio il primo punto che la Serbia non accolse: l'ammissione di un'ingerenza austriaca nella vita politica serba avrebbe significato distruggere l'indipendenza e la sovranità che si era così difficilmente creata. Il **28 luglio 1914// venne quindi dichiarata guerra alla Serbia. 
+
+Per la Germania i tempi di decisione divennero decisamente ristretti: per vincere la guerra secondo il piano Von Schlieffen, bisognava mobilitarsi in fretta: Berlino inviò un ultimatum all'impero zarista il **31 luglio 1914**, dopo che la Russia aveva mobilitato le sue truppe. l'**1 agosto 1914**, la Germania dichiarò ufficialmente guerra alla Russia.
+
+
+Nel frattempo, i socialisti che tanto preoccupavano le nazioni all'inizio della guerra, si allinearono tutti in un'idea interventista: l'idea di *Nazione* prevalse su quella di *Classe*.
+
+Il **2 agosto 1914** Berlino intimò al Belgio di lasciar passare le proprie truppe sul proprio territorio: ovviamente la richiesta venne respinta e la Germania fu così costretta ad invaderlo; 7 ore dopo l'invasione, la Gran Bretagna, fino ad allora in disparte, dichiarò guerra all'impero germanico. Nel frattempo l'esercito tedesco fece razzia del Belgio, fuciliando i prigioneri che faceva lungo il suo cammino (tra cui donne e bambini).
+
+L'esercito tedesco riuscì a raggiungere in relativamente poco tempo il confine di Parigi, lungo il fiume **Marna** a 40 km dalla capitale. Qui però, il **5 settembre 1914** l'esercito francese e inglese fermarono l'avanzata tedesca, distruggendo per sempre le speranze di una guerra lampo. Da questo momento, la guerra entrò in stallo, trasformandosi in una guerra di posizione: i 2 eserciti, stremati e privi di munizioni, si attestarono lungo una linea che attraversava l'intera Francia da Nord a Sud per più di 765 km. I 2 fronti che correvano paralleli per tutta la lunghezza, lasciavano così uno spazio di terra in mezzo, denominato *terra di nessuno*.
+
+Per i successivi 4 anni, il fronte francese non subì particolari mutazioni: ciò era in particolare dovuto al fatto che la **capacità difensiva di ogni esercito** era estremamente superiore della propria **capacità offensiva**. In pratica, si era capaci di respingere l'avanzata offensiva (grazie alle nuove armi moderne, come i cannoni a grosso calibro o le mitragliatrici), ma per lo stesso motivo non si era capaci di sfondare il fronte avversario. Neppure l'introduzione dei gas asfissianti ottenne molto successo: spesso risultavano controproducenti, a causa dell'imprevedibilità del vento.
+
+Nel 1916 si combatterono le 2 battaglie più lunghe e sanguinose dell'intera guerra: La battaglia di **Verdun**, dove le difese francesi respinsero l'attacco tedesco con numeri spaventosi. Il secondo scontro, **La battaglia delle Somme**, si risolse con un disastro per gli inglesi. Queste 2 battaglie furono anche i campi di test per i nuovi **lanciafiamme** e i **tanks**, ancora tuttavia troppo fragili e poco numerosi. Solo in queste 2 battaglia morirono quasi **1 milione** di soldati.
+
+### Situazione economica
+
+All'inizio della guerra nessuno si aspettava che sarebbe durata così tanto, e nessuno possedeva un'economia in grado di sostenere uno scontro così prolungato. Emerse con chiarezza quindi che la vittoria sarebbe andata a coloro che avrebbero fronteggiato nel miglior modo questo problema.
+
+Per quanto riguarda le risorse umane, solo l'Inghilterra, tra gli stati coinvolti, non possedeva ancora la coscrizione obbligatoria; tuttavia, i numeri dei soldati impiegati furono esorbitanti, basti pensare che la Germania arrivò a schierare 11 milioni di soldati. Inoltre, Francia e Inghilterra fecero largo uso delle colonie per approvigionare le proprie linee di uomini.
+
+A partire dall'estate del 1914, la marina britannica istituì un blocco navale, finalizzato a paralizzare il commercio d'importazione tedesco. Per ovviare a tale deficit, l'industriale tedesco **Walther Rathenau**, sollecitò il kaiser nell'istituzione di un ministero per le materie prime, finalizzato alla gestione dall'alto della materie prime in Germania. Tale modello decretò la fine dell'economia liberista, ponendo lo stato come arbitro supremo della dinamica economica.
+
+La soluzione al blocco navale inglese arrivò invece con lo sviluppo della grande flotta sottomarina tedesca: i sommergibili tedeschi procedettero al siluramento di tutte le navi che solcavano l'Atlantico, sfavorendo l'economia inglese.
+Tuttavia l'Inghilterra riuscì a riprendersi introducendo il **sistema di convogli**, affiancando ad ogni nave mercantile, una serie di corazzate a difesa di essa.
+
+La situazione non dava segni di miglioramento e la popolazione era ormai stremata e stanca della guerra: nel 1917 si verificarono alcuni ammutinamenti da parte di operai tedeschi che chiedevano le trattative di pace e da un contingente di soldati francesi, i quali abbandonarono le trincee. Le autorità francesi si resero conto di dover dosare con estrema diligenza gli interventi di repressione, per evitare di aggravare ancora di più la situazione. Ulteriori assalti al nemico avrebbero potuto provocare un intero collasso dell'esercito.
+
+Dopo alcune settimane la situazione in Francia si stabilizzò di nuovo, ma la Russia stava crollando:già nell'agosto del 1915, sotto l'avanzata tedesca, Varsavia era stata occupata e si contavano 1.700.000 prigionieri russi. Si può dire che la Germania, nell'Europa dell'Est avesse **già vinto la guerra**.
+
+Nei mesi di febbraio e marzo del 1917, venne deposto lo zar e creato un governo provvisorio. I **comunisti**, guidati da **Lenin**, gridavano a gran voce la pace. Nell'ottobre del '17, Lenin con un colpo di stato si impadronì di Pietrogrado. Il **3 marzo 1918** il nuovo governo comunista firmò con i tedeschi la pace di **Brest-Litovsk**: l'intera Ucraina venne tolta alla Russia. Tuttavia Lenin e tutto il popolo russo erano disposti ad accettare queste pesanti condizioni.
+
+Per la Germania si prospettava quindi una vittoria, ora che il fronte Est era stato sistemato. Tuttavia, il **6 aprile 1917** gli Stati Uniti entrarono in guerra contro l'impero tedesco. La Germania capì quindi che l'unico modo per vincere la guerra era quello di sconfiggere Francia e Inghilterra prima dell'arrivo degli americani. Su mare però, lo scontro era già perso in partenza.
+
+**L'8 gennaio 1918** il presidente Wilson enunciò i 14 obiettivi politici che l'America si proponeva di ottenere dalla vittoria; riportiamo i 2 più importanti:
+
+- Principio di nazionalità e auto-determinazione dei popoli;
+- Istituzione di una **Società generale delle nazioni** (poi ONU);
+
+
+Sul piano storico, l'intervento degli Stati Uniti segna una svolta decisiva nella storia europea: per la prima volta infatti, gli Stati Uniti intervennero in questioni europee, interrompendo il loro isolazionismo e mostrando la loro determinatezza: la prima guerra mondiale fu vinta dai francesi e dagli inglesi solo grazie all'intervento americano.
+
+**Il 21 marzo 1918** l'esercito tedesco iniziò l'ultima grande controffensiva per sfondare il fronte occidentale: nonostante alcuni piccoli successi però, la Germania non riuscì a sconfiggere i nemini, che vennero respinti.
+
+Il **3 novembre 1918** l'impero austro-ungarico dichiarò la resa. Guglielmo secondo, dopo alcune rivolte a Monaco e a Berlino, abdicò e fuggi in Olanda, con una conseguente proclamazione della repubblica in Germania. **L'11 novembre 1918** la delegazione tedesca firmò l'armistizio. La Prima guerra mondiale era ufficialmente terminata, provocando la morte di più di 9 milioni di soldati e 5 milioni di civili.
+
+La Germania aveva perso perché essenzialmente sola contro il resto del mondo. Tuttavia, la colpa della sconfitta venne addossata in Germania, al amrxismo e alla propaganda socialista. La guerra, secondo **Hitler** non era stata persa sul campo, ma per il cedimento del fronte interno, che aveva pugnalato alla schiena un esercito ancora imbattuto. Ciò lasciò tra gli sconfitti un grave strascico d'odio, che avrebbe costituito le basi per il fascismo e il nazionalsocialismo.
 
 # Rivoluzione Russa e Comunismo
 
