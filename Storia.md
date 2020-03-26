@@ -1,4 +1,40 @@
-# Date verifica di storia - Rivoluzione Russa e Comunismo
+# L'età giolittiana
+
+## Narrazione
+
+Il primo leader politico liberale in Italia che capì l'importanza delle masse fu **Giovanni Giolitti**, secondo il quale *'il risveglio sociale dei contadini e degli operai era un dato inevitabile'*. Secondo egli infatti, gli scioperi e le proteste dei lavoratori non avevano, in sè, nulla di pericolo e rivoluzionario, almeno fino a quando si mantenevano sulla pura e semplice rivendicazione economica.
+
+Compito dello Stato era invece quello di garantire l'ordine, ed evitare che gli scioperi degenerassero in tumulti. Si doveva mostrare come  **l'imparziale garante e tutore degli interessi di tutti i cittadini** (reprimere gli scioperi significava infatti difendere i desideri dei soli capitalisti).
+
+Giolitti era un conservatore e aveva capito che non si poteva mantenere l'assetto sociale esistente, basato sull'eguaglianza economica, senza il consenso delle masse popolari. Il suo obiettivo era quello di portare i cittadini a credere che lo Stato non fosse loro nemico, ma uno strumento da sfruttare per raggiungere degli obiettivi concreti.
+
+Tuttavia, anche con i socialisti (cioè coloro che, secondo le proprie idee, dovevano essere i suoi più acerrimi nemici), Giolitti instaurò buoni rapporti: collaborò con **Filippo Turati**, uno dei fondatori del PSI, il quale pur spingendo per trasformare la società sotto l'esempio Marxista, non si fece sfuggire la possibilità di portare qualche vantaggio alla sua classe votante.
+
+Nonostante i buoni rapporti con il PSI comunque, mai nessun socialista rivestì la carica di ministro. Inoltre, non tutti i socialisti seguivano la linea gradualista di Turati: nel 1904 infatti, la corrente radicale ottenne la maggioranza all'interno del partito e nel settembre dello stesso anno si arrivò al **primo sciopero generale su scala nazionale**. Giolitti mantenne però la propria linea di pensiero, lasciando che lo scipoero svanisse da solo. Nel 1908 la parte riformista del PSI riprese il potere, stabilendo alcuni nuovi obiettivi da raggiungere:
+
+- suffragio universale;
+- imposta progressiva sui redditi;
+- potenziamento dell'istituzione pubblica.
+
+Nel frattempo, l'economia del paese sembrava in crescita: negli anni che vanno adl 19esimo al 20esimo secolo, il tasso di sviluppo annuo era pari al 7% e in alcuni casi superava il 12%. L'industria automobilistica fu quella di maggior successo in Italia (in questi anni risale la nascita della **FIAT**) in quanto, nonostante ancora pochissime persone potevano permmetersi un bene così di lusso nella penisola, i prodotti degli artigiani italiani vennero esportati in tutto il mondo per la loro pregievolezza. Anche l'industria dell'energia ebbe grandi sviluppi. Tuttavia, lo sviluppo economico italiano portava con sè grandi problemi strutturali che spesso, la politica Giolittiana non volle affrontare, come ad esempio il fatto che tutto questo sviluppo industriale riguardava quasi esclusivamente il Nord, lasciando il Sud nella completa arretratezza.
+
+Giolitti attuò inoltre una politica economica di stampo **protezionistico**: difese e finanziò le industrie siderurgiche, gli zuccherifici e le cotonerie, indebitandosi non poco e suscitando non poche proteste dagli economisti del tempo. Va tuttavia sottolineato che, senza una politica di quel tipo, l'Italia non sarebbe mai stata in grado di stare al passo con l'enorme sviluppo delle altre nazioni. Più discutibile fu invece il provvedimento sul grano: Giolitti applicò dei dazi sul grano proveniente dagli Stati Uniti per favorire le produzioni dei latifondisti del Sud. Tale provvedimento, più che per ragioni economiche, venne preso per aggiudicarsi i voti dei collegi meridionali.
+
+Tali metodi infimi di guadagnarsi la maggioranza vennero pesantemente criticati: tra i più accesi critici della politica Giolittiana troviamo **Gaetano Salvemini**, il quale arrivò a definire i parlamentari della maggioranza *ascari* e Giolitti *ministro della malavita*. Salvemini attaccò anche Turati, accusandolo di tutelare solo gli interessi degli operai e dei contadini del Nord, ignorando le esigenze del Sud.
+
+### La guerra in Libia
+
+Nel settembre del 1911 Francia e Italia procedettero con la spartizione degli ultimi territori nel Nord Africa: dopo che la Francia (più ingerente) scelse di conquistare il Marocco, all'Italia venne concesso di espandersi nei territori libici. Così come l'impresa etiope di qualche anno prima, anche la guerra in Libia non fu un grande successo: dopo alcuni iniziali successi, l'esercito italiano faticò molto ad avanzare, con il risultato che, dopo un anno e 60.000 soldati impiegati al fronte, l'Italia era riuscita ad impossessarsi solo della fascia costiera. Solo negli anni '20, la Libia venne conquistata, tramite l'utilizzo dei campi di concentramento.
+
+Nonostante la vittoria di Pirro, la guerra di Libia risultò essere molto apprezzata dall'opinione pubblica, che vide il successo con grande sentimento nazionalista e voglia di rivalsa. Neanche le critiche di Salvemini, che definì la Libia *un grosso scatolone di sabbia*, bastarono a placare l'entusiasmo in patria. Gli unici che si mostrarono contrari all'impresa libica furono i socialisti, secondo i quali non si doveva nemmeno appoggiare un'impresa dettata solo dalla volontà di potenza e che avrebbe portato vantaggi solo agli industriali e non alle classi popolari. Anche Turati si schierò contro il conflitto, segnando definitivamente la fine di ogni possibile rapporto tra governo e partito.
+
+Per recuperare il consenso dei socialisti, Giolitti introdusse il suffragio universale maschile, più che duplicando il numero di elettori. Tuttavia nel 1912 risalì al potere la parte radicale del partito socialista, quella contraria ad ogni forma di collaborazione con il governo. Inoltre venne affidata a **Benito Mussolini** la direzione del giornale del PSI, *l'Avanti*. Con le elezioni prossime e la perdita del consenso socialista, Giolitti non aveva altra possibilità che aggiudicarsi il favore della comunità cattolica, la quale si era posta contro lo stato dal 1870, anno in cui il papa emise una bolla dove dichiarava *illegittimo* il nuovo regno d'Italia. La vittoria fu schiacciante: in tutti i seggi in cui era previsto il trionfo di un candidato socialista, i cattolici votarono per un canditato liberale, purchè esso si fosse impegnato per iscritto a non sostenere alcuna proposta di legge contraria alla morale cristiana. L'incarico di capo del governo venne assegnato, su consiglio di Giolitti, al conservatore **Antonio Salandra**.
+
+# Le origini del conflitto 
+
+L'analisi delle cause della seconda guerra mondiale, deve partire per forza di cose, dal 1875, anno in cui nelle due province di **Bosnia** ed **Erzegovina** i contadini cristiani si ribellarono contro i proprietari terrieri musulmani. Serbia e Montenegro intervennero in favore dei ribelli: le loro intenzioni erano quelle di guadagnarsi l'indipendenza nei confronti dell'impero turco. Vennero tuttavia sconfitte dai turchi. Intervenne quindi la Russia, con il pretesto di difendere le regioni slave sorelle ma con l'obiettivo di espandere la propria influenza nella regione balcanica. I russi riuscirono a sconfiggere i turchi, obbligando Istanbul a firmare la pace di Santo Stefano: stipulata nel 1878, prevedeva la nascita dello stato di Bulgaria, docile vassallo della Russia in ex-territori ottomani. Tuttavia, così facendo, la Russia avrebbe acquistato troppo potere e agli altri stati europei ciò non andava affatto bene.
+
+# Rivoluzione Russa e Comunismo
 
 - **Pre prima guerra mondiale**
 
