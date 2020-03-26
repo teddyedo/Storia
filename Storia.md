@@ -34,6 +34,36 @@ Per recuperare il consenso dei socialisti, Giolitti introdusse il suffragio univ
 
 L'analisi delle cause della seconda guerra mondiale, deve partire per forza di cose, dal 1875, anno in cui nelle due province di **Bosnia** ed **Erzegovina** i contadini cristiani si ribellarono contro i proprietari terrieri musulmani. Serbia e Montenegro intervennero in favore dei ribelli: le loro intenzioni erano quelle di guadagnarsi l'indipendenza nei confronti dell'impero turco. Vennero tuttavia sconfitte dai turchi. Intervenne quindi la Russia, con il pretesto di difendere le regioni slave sorelle ma con l'obiettivo di espandere la propria influenza nella regione balcanica. I russi riuscirono a sconfiggere i turchi, obbligando Istanbul a firmare la pace di Santo Stefano: stipulata nel 1878, prevedeva la nascita dello stato di Bulgaria, docile vassallo della Russia in ex-territori ottomani. Tuttavia, così facendo, la Russia avrebbe acquistato troppo potere e agli altri stati europei ciò non andava affatto bene.
 
+Per risolvere tale problema, i rappresentanti delle maggiori nazioni europee si riunirono nel 1878 nel **Congresso di Berlino**. Alla Russia venne imposto di rinunciare alla Bulgaria. Grazie a ciò, Inghilterra e Austria-Ungheria ottennero rispettivamente l'isola di **Cipro** e le province di **Bosnia e Erzegovina**. La Serbia ne uscì indipendente. Anche la Germania, capitanata dal cancelliere **Otto Von Bismarck** si mostrò contro l'espansionismo russo e nel 1879, per prevenire un inasprimento dei rapporti Germania-Russia, Bismarck stipulò una alleanza difensiva con l'Impero Asburgico.
+
+nel 1881, la Francia occupò la Tunisia, conquistando così la quasi totalità della costa nordafricana. L'Italia si accorse del pericolo imminente, ma non fu in grado di fronteggiarlo da sola: era troppo debole e isolata. Nel 1882 l'Italia decise quindi di avvicinarsi all'impero tedesco, grande nemico della Francia, e di stipulare con esso un'alleanza difensiva: nacque così la **Triplice Alleanza**.
+
+L'avversario comune della triplice alleanza era senza dubbio la Francia; la Germania era in contesa per i territori dell'**Alsazia e la Lorena**. Stipulando la Triplice Alleanza, l'Italia rimandava per forza di cose le mire di annessione al regno italico di Trento e Trieste (in quanto parte dell'Impero asburgico, sua alleata). La Francia, trovò un valido sostegno e alleato contro la Germania nella Russia, con la quale stipulò un'alleanza difensiva nel 1902. (Notare le differenze:
+
+- Francia: repubblica parlamentare, passato illuminista e rivoluzionario;
+- Russia: impero zarista, monarchia assoluta e dispotica
+
+Punto d'unione: nemico comune e capitali francesi utili allo sviluppo dell'arretrata Russia.
+
+### Descrizione del piano Von Schlieffen
+
+- Sfruttare l'arretratezza russa e schierare tutte le truppe prima a ovest verso la Francia;
+- Ingannare la Francia e passare per il Belgio, stato neutrale, raggiungendo Parigi di sorpresa;
+- Sconfiggere la Francia e mobilitare velocemente tutte le truppe sul fronte est, fronteggiando la Russia.
+
+Sulla carta, il piano Von Schlieffen avrebbe avuto una minima possibiltà di successo se e solo se i rapporti con l'Inghilterra non si fossero incrinati: non si dovevano adottare politiche tali da turbare l'Inghilterra.
+Viceversa, la politica tedesca dei 15 precedenti alla guerra si orientò in tutt'altro verso: la Germania si concentrò sul potenziamento della propria flotta, rendendola capace di competere con quella britannica. Si innescò così una corsa agli armamenti navali tra Germania e Inghilterra che vide lo sviluppo di nuove tecnologie ogni anno. L'Inghilterra si trovò quindi costretta a trovarsi degli alleati, avvicinandosi così ai principali nemici della Germania e stipulando la cosiddetta **Triplice Intesa** con Francia e Russia.
+
+Il riarmo navale e la lotta con l'Inghilterra vennero pesantemente criticati da alcuni esponenti dell'opinione pubblica tedesca: il principale motivo di tale scelta, apparentemente suicida si può ritrovare in una ricerca di prestigio e superiorità: non essendoci più colonie da conquistare, l'unico modo per far valere il proprio nome e dimostrare al mondo la propria forza e la grandezza della nazione tedesca sembrava essere quello.
+
+L'Europa si trovava così in una vasta rete di alleanze, dove anche un piccolo conflitto regionale rischiava di degenerare in uno scontro generalizzato di grandissime dimensioni. Uno dei luoghi più caldi era la **penisola balcanica**.
+
+In questa zona la Serbia, aveva intenzione di compiere un azione simile a quella che aveva compiuto il Piemonte in Italia: sperava di arrivare alla costruzione di un grande stato nazionale che comprendesse al suo interno tutte le regioni slave, anche quelle sotto il dominio austro-ungarico. (**Panslavismo**) Nel 1912 si alleò quindi con Montenegro, Grecia e Bulgaria nella **Lega Balcanica**; tali paesi attaccarono l'impero ottomano che venne pesantemente sconfitto. L'impero, dopo secoli di presenza nei balcani, perse tutti i suoi possedimenti. La Serbia conquistò quindi il Kosovo, dove fece anche una forte epurazione albanese, a favore della popolazione serba.
+
+Italia e Austria-Ungheria, preoccupate dell'espansionismo serbo, negarono a Belgrado l'accesso al mare e istituirono lo stato dell'**Albania**, frapposto tra Serbia e Adriatico. Ciò inasprì molto i rapporti tra Vienna e Belgrado, che sfocieranno in conseguenze molto gravi.
+
+
+
 # Rivoluzione Russa e Comunismo
 
 - **Pre prima guerra mondiale**
