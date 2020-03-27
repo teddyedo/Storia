@@ -349,3 +349,76 @@ L'ondata di terrore toccò il culmine negli anni 1937-1938: in un anno, condanna
 Stalin temeva che tutti coloro che erano riusciti a fuggire dai gulag potessero rappresentare una sorta di "quinta colonna" nel caso in cui potenze esterne avvesso attaccato l'URSS; perciò la repressione staliniana colpì anche le minoranze nazionali (tedeschi, estoni, lettoni, ucraini...). Venne arrestato persino il comandante che aveva guidato l'Armata Rossa a Kronstadt e Tambov.
 
 Questo stesso comandante (**Michail Tuchacevskij**), aveva messo in piedi una produzione su vasta scala di carri armati e aeroplani. Stalin, temeva che avesse acquistato troppo potere, e lo fece fucilare. Insieme a lui morirono 71 degli 85 ufficiali superiori dell'Armata Rossa, una vera e propria _purga_ che decapitò l'esercito. All'inizio della seconda guerra mondiale, la Russia possedeva un esercito privo dei suoi più grandi generali e assai inesperto.(inoltre i carri armati non avevano le radio, idioti).
+
+
+
+# Il Fascismo
+
+### L'Italia dopo la fine della Prima guerra mondiale
+Il 16 aprile 1915 l'Italia, con il Patto di Londra, entra in guerra al fianco di Francia e Gran Bretagna, chiedendo come ricompensa **Trento**, **Trieste** e e la **Dalmazia** (abitata prevalentemente da slavi). Nel Patto di Londra **non si faceva alcun riferimento esplicito alla città di Fiume**.
+
+Nel dopoguerra (ottobre 1918) la città di Fiume chiese l'annessione al Regno d'Italia. Per il principio di nazionalità l'Italia avrebbe dovuto abbandonare le pretese sulla Dalmazia e accontentarsi di Trento, Trieste e Fiume. L'Italia, alla conferenza di Parigi, chiede Fiume per il principio di nazionalità e la Dalmazia per il Patto di Londra. Le altre nazioni rifiutano e la delegazione italiana abbandona i trattati della conferenza di Parigi il 24 aprile 1919. I trattati proseguirono senza tener conto dell'Italia.
+
+Il 13 settembre 1919 **Gabriele D'Annunzio** si pone alla guida di alcuni reparti militari disertori e si impadronisce di Fiume, per ripicca nei confronti degli altri stati; Fiume diventa la base dei futuri fascisti, giovani affascinati dalla guerra;
+
+L'economia italiana è in enorme difficoltà: nel 1920 ci sono  **90 miliardi di lire di debito pubblico**, dovuto alle spese belliche. Questo comporta la svalutazione della lira che a sua volta porta ad un aumento dei prezzi e ad un inflazione che divora i redditi fissi e i risparmi.
+
+In questo contesto, dopo la Rivoluzione Russa, cresce la paura di una rivoluzione comunista in Italia. Lo stesso **Saverio Nitti**, primo ministro italiano, chiede aiuto alla _parte sana della nazione_ per paura che potesse scoppiare una rivoluzione comunista anche in Italia (ovvero fa appello anche all'aiuto dei cittadini comuni per combattere la rivoluzione  che secondo lui era incombente perché credeva che lo Stato non potesse farcela da solo). Così facendo apre la strada ai futuri _fasci di combattimento_.
+Il governo Nitti si manifesta debole. In Italia riscoppia lo scontro tra **neutralisti ed interventisti** I primi rinfacciano le perdite e i pochi guadagni della guerra; i secondi credono nell'importanza di ciò che l'Italia ha fatto e accusano i primi di essere nemici della nazione. 
+I contadini e gli operai insorgono, si appropriano di terre non loro e si fanno aumentare i salari: lo Stato non li tiene più in mano. (Ai contadini erano state promesse le terre per non disertare dopo Caporetto, cresce il malcontento nei confronti dello Stato che non vuole darle per tenersi buoni i borghesi proprietari terrieri).
+
+**Crisi all'interno del PSI**, che contava ben 87.000 iscritti nel primo dopoguerra; era una rivoluzione più a parole che a fatti: non c'era questo forte sentimento di rivoluzione ai piani alti, semplicemente si cercava una situazione di vita migliore. Anche quando c'erano i presupposti per la rivoluzione, si incitava alla calma... 
+Tra i più rivoluzionari del PSI si distinse Amadeo Bordiga, che accusa il PSI di essere mollo. Vuole dar vita ad un partito di stampo Bolscevico. C'era anche Antonio Gramsci, il quale propone con il suo giornale, i _consigli di fabbrica_, organismi eletti dai lavoratori che dovevano essere gli ingranaggi del nuovo stato. Gramsci spinge affinché le masse prendano l'Italia, Bordiga crede che debba farlo il partito.
+
+Nel 1919, come alternativa alla destra conservatrice (liberali) e al PSI nasce il **Partito Popolare Italiano** o **PPI** fondato da Don Luigi Sturzo. Il partito vuole un sistema elettorale proporzionale (i liberali avevano paura agevolasse troppo i socialisti). Era un partito di centro, interclassista e aconfessionale. Diventerà poi la Democrazia Cristiana (DC) che dominerà lo scenario politico italiano dal secondo dopoguerra agli anni '90.
+
+### Il movimento fascista
+Il 23 marzo 1919 nascono i **Fasci italiani di combattimento** fondati da Benito Mussolini (ex componente di spicco fra i rivoluzionari del PSI ed ex direttore del giornale _Avanti_, espulso dal partito). La posizione iniziale dei fasci di combattimento era **socialista**, con una connotazione **nazionalista**. Puntava ad avere sia l'appoggio degli operai che della borghesia, approfittando delle mancanze del governo. Alle elezioni del 1919 i fasci prendono pochissimi voti, probabilmente per l'idea troppo _border-line_ di Mussolini.
+
+Nel giugno del 1920 **Giovanni Giolitti** diventa di nuovo presidente del consiglio. Giolitti non interviene per sedare le rivolte degli operai e dei contadini, lasciando che andassero scemando (e così fu). La borghesia non si sente però tutelata dal governo e ha paura di una rivoluzione comunista. Con il **Trattato di Rapallo**, firmato da Giolitti, l'Italia acquisisce l'Istria ma rinuncia a Fiume. L'armata guidata da D'Annunzio non vuole rinunciare all'impresa. Il governo manda il reparto di carabinieri di forza regia (fedeli al Re) e scaccia D'Annunzio (avevano paura che l'esercito normale potesse unirsi a D'Annunzio).
+
+Nel frattempo Giolitti tenta di risollevare l'economia italiana: elimina il prezzo politico del pane e aumenta la tassa di successione. Questo provoca malcontento fra i borghesi. Giolitti capisce di non avere più l'appoggio della borghesia e **si dimette**.
+
+La crisi all'interno del PSI diventa sempre più pesante. Il partito si scinde. Nasce il **Partito Comunista Italiano (PCI)** che voleva attuare una vera rivoluzione comunista.
+
+I fasci di combattimento compiono due atti vandalici incendiando un Hotel filoslavo a Trieste e prendendo d'assalto il municipio di Bologna al momento dell'insediamento della giunta socialista. **I fasci abbandonano sempre di più le posizioni socialiste, schierandosi sempre di più a favore della borghesia**. La loro popolarità fra la borghesia aumenta moltissimo. I fasci vogliono risolvere i problemi del paese con la forza. I dirigenti sono quasi tutti ex-militari, che credono nella guerra e nella violenza. I militanti erano molto giovani, affascinati dall'esperienza. Nel 1921 I fasci si organizzano in squadre d'azione nel territorio (**squadrismo**) e mantengono l'ordine con la forza, sedando le rivolte contadine. Per il governo i fasci non rappresentavano un problema, anzi, erano ben visti perché aiutavano a mantenere l'ordine. Il 3 agosto 1921 Mussolini firma il patto di pacificazione con il PSI, per teminare le azioni di squadrismo. Tuttavia non viene ascoltato dai membri del movimento che sconfessarono Mussolini, in quanto obbediscono solo ai **ras**, ovvero i capi delle squadre d'azione locali.
+
+Mussolini completa il suo passaggio a destra fondando, nel novembre del 1921, il **PNF (Partito Nazionale Fascista)** di stampo prettamente conservatore, borghese, antisocialista. Le violenze continuarono senza opposizione fino all'estate del 1922.
+
+Per le elezioni del 1921 Giolitti organizza il _Blocco Nazionale_ ovvero un'alleanza composta da liberali, nazionalisti e alcuni fascisti per cercare di fermare i socialisti e addomesticare i fascisti.
+
+Alcuni socialisti (Turati e Matteotti) si dichiarano favorevoli per allearsi con liberali e cattolici al fine di fermare i fascisti. Gli altri socialisti rifiutano. Turati e Matteotti vengono espulsi e fondano il **Partito Socialista Unitario (PSU)**.
+
+Il 29 ottobre 1922 i fascisti compiono la **marcia su Roma**. Se il governo avesse schierato l'esercito il fascismo sarebbe stato spazzato via. Tuttavia avrebbe significato andare contro al Re (che appoggiava Mussolini). Il governo non interviene e il Re Vittorio Emanuele III conferisce a Mussolini l'incarico di formare un nuovo governo. Il fascismo prende il potere con un modo assolutamente legale. Mussolini vuole mostrare il suo movimento come la parte sana della nazione; volontà di identificazione tra patria e partito fascista. Chi era contro il fascismo, era contro l'Italia. 
+
+
+Alle elezioni del 1924 gli squadristi intervengono con **brogli e violenza**. Il PNF vince le elezioni (grazie anche al cospicuo premio di maggioranza) **Matteotti** se ne accorge e denuncia tutto in Parlamento; arrestato e ucciso dagli squadristi. Matteotti aveva scoperto anche una maxi-tangente di una azienda americana a Mussolini per vendere tutto a loro il pretrolio italiano. L'opposizione, abbandona la Camera nella speranza che il Re, davanti ad un atto simile, intervenga (**Secessione dell'Aventino**). Il re non interviene. Mussolini e il fascismo hanno il Parlamento tutto per loro. 
+
+Il 3 gennaio 1925 Mussolini ammette in Parlamento alcuni brogli elettorali che secondo lui avevano influenzato poco le elezioni. Si assume la diretta responsabilità dell'accaduto per non far perdere i consensi al partito. Assume la figura di padre di famiglia. Poteva permetterselo, era protetto dal Re.
+
+### Lo Stato fascista
+Il fascismo è così al potere da solo. A partire dal 1925 inizia progressivamente a **cancellare tutte le libertà**. Cancellò la divisione dei poteri, attribuì il potrere legislativo al governo (il Parlamento diventa inutile), il governo dipendeva solo dal Sovrano. Il governo assume anche il potere giudiziario e vuole controllare ogni aspetto della vita dello Stato.
+
+Nel novembre 1926 vengono emanate le **leggi fascistissime** che sopprimono tutti i partiti, i Parlamentari che parteciparono all'Aventino vengono dichiarati decaduti, viene istituito un Tribunale Speciale per gli oppositori politici che potevano essere condannati al solo sospetto (**regime di terrore**) e viene ripristinata la pena di morte. 
+
+Viene istituito inoltre il **confino** per gli oppositori e chi non era gradito al regime. Vengono **aboliti gli scioperi** e viene sostituita la figura del sindaco (eletto dai cittadini) con quella del **podestà** (nominato dal governo).
+
+L'11 febbraio 1929 Mussolini stipula i **Patti Lateranensi** (nel Laterano, a Roma) con la Chiesa Cattolica. Lo Stato italiano non è più laico, diventa uno Stato cattolico. Nasce lo Stato della Città del Vaticano. Mussolini si assicura l'appoggio del Papa oltre che del Re.
+
+L'obbiettivo ultimo del fascismo era quello di generare nelle masse il **consenso**: il duce non doveva essere il nuovo zar che guidava un gruppo di pecore docili ma un condottiero alla guida di un popolo che lo segue con fede ed entusiasmo. Creazione di enormi **adunate fasciste** (davano l'impressione di appartenere a qualcosa, rassicurando e confortando i cittadini) e inserimento dell'ideologia fascista in ogni parte della vita dell'uomo. Mussolini non crede nella democrazia. 
+Farinacci, segretario del partito, voleva istituire una sorta di diarchia e di suddivisione del potere. Al Duce non andava bene e acquisito ancora più potere, fece dimettere Farinacci.
+
+Avvengono diverse epurazioni all'interno del PNF. Mussolini istituisce i **federali** (rappresentanti del partito a livello provinciale) a cui dovevano obbedienza i prefetti e i podestà.
+
+All'inizio Mussolini veniva visto come un gerarca, poi divenne una figura **carismatica**: prima poteva essere sostituito, ora aveva assunto una coloritura quasi religiosa, tipo Hitler e Stalin.
+Appurato ormai che il PNF non aveva più nessun potere decisionale, esso cambiò la propria fisionomia: venne utilizzato come primo strumento di diffusione dell'ideologia ufficiale, di educazione popolare e di promozione del mito infallibile del capo del regime. L'iscrizione al PNF venne aperta a tutti e i pubblici funzionari dovevano essere per forza iscritti. Volontà di fascistizzazione completa dello stato, niente doveva sfuggire al controllo fascista. **Aggregazione della maggior parte dei cittadini**. 
+
+Mussolini aveva la volontà di trasformare l'Italia in una **grande potenza**, il mito era l'antica Roma. Il picco si toccò nel 1936 con la conquista dell'Etiopia e l'elezione a **imperatore** di Vittorio Emanuele III (per tenerselo buono). Mussolini capì che quello era il momento di dare vita all'uomo nuovo fascista, procedendo alla trasformazione degli italiani che era richiesto. Vi era il bisogno di far credere agli italiani di essere superiori: ciò venne fatto con i neri etiopi, considerati oggetti (anche sessuali) i matrimoni misti erano puniti con la carcerazione.
+Il 29 giugno 1939 istituì il **reato di lesione del prestigio della razza** in cui gli italiani venivano riconosciuti come superiori rispetto ai nativi e ai meticci.
+
+Nasce anche la problematica della razza; dopo i neri, entrano in gioco anche gli **ebrei** (erano il 0.1% della popolazione). Il razzismo di Mussolini era il razzismo biologico (ovvero quello che sosteneva la presenza di diverse razze umane). Primo provvedimento: esclusione dei docenti ebrei dalle scuole, divieto di iscrizione per gli ebrei nelle scuole statali, segregati in speciali sezioni, intimidazione di lasciare l'Italia.
+L'antisemitismo di Mussolini, **NON fu influenzato da Hitler**. le motivazioni sono essenzialmente 2: non sopportava l'autonomia d'azione delle comunità ebraiche e doveva rafforzare il razzismo negli italiani per conseguire il suo scopo.
+Il 6 ottobre 1938 il **Gran Consiglio del Fascismo** (assemblea di tutti i più autorevoli dirigenti fascisti) annunciò tutti i provvedimenti che sarebbero stati presi contro gli ebrei.
+A valanga, un'infinita serie di provvedimenti colpirono gli ebrei, i quali furono costretti a emigrare o a vivere in condizioni precarie. Non potevano fare niente di niente. **Vittorio Emanuele III firmò senza protestare tutti i decreti**.
+
+Dal punto di vista **economico**, Mussolini decise di ridare valore alla moneta, ponendosi come obiettivo la **quota 90** (90 lire per 1 sterlina), creando non pochi malcontenti, ma permettendo un importazione meno dispendiosa. Inoltre venne applicata una politica protezionistica per far fronte alla mancanza di produzione granaria, che riuscì nel suo intento. In seguito alla crisi in USA, anche l'Italia ne venne pienamente colpita: decisione del Duce fu quella di far intervenire lo stato nell'economia: bonifica dell'agro Pontino, costruzione di autostrade, IMI e IRI. La prima era una banca pubblica con lo scopo di aiutare le aziende in crisi, la seconda rilevava le aziende e ne assumeva la gestione. Tramite esso, lo stato si ritrovò in possesso del 45% delle industrie italiane. Nasce l'economia mista. Tuttavia l'Italia non era pronta ancora militarmente e economicamente. Entrata in guerra, si prostra alla Germania.
