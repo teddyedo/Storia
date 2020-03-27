@@ -119,6 +119,67 @@ Il **3 novembre 1918** l'impero austro-ungarico dichiarò la resa. Guglielmo sec
 
 La Germania aveva perso perché essenzialmente sola contro il resto del mondo. Tuttavia, la colpa della sconfitta venne addossata in Germania, al amrxismo e alla propaganda socialista. La guerra, secondo **Hitler** non era stata persa sul campo, ma per il cedimento del fronte interno, che aveva pugnalato alla schiena un esercito ancora imbattuto. Ciò lasciò tra gli sconfitti un grave strascico d'odio, che avrebbe costituito le basi per il fascismo e il nazionalsocialismo.
 
+# L'Italia nella Grande Guerra
+
+Per quanto riguarda l'Italia, bisogna ricordare che, nel 1914, si trovava ancora legata ad Austria e Germania con la Triplice Alleanza: di conseguenza, alla notizia dello scoppio della prima guerra mondiale, il generale dell'esercito **Luigi Cadorna** , sollecitò il re per far si che le truppe italiane venissero quanto prima mandate in soccorso agli alleati. Tuttavia, l'1 agosto 1914, il governo presieduto dal conservatore **Antonio Salandra** decise che l'Italia non avrebbe dovuto intervenire nello scontro, in quanto l'allenza stipulata nel 1882 era prettamente di stampo difensivo: Sia Austria che Germania invece, non erano state attaccate, ma avevano dichiarato loro stesse guerra. L'Italia **non era quindi obbligata** ad entrare in guerra. 
+
+Appena questa notizia cominciò a girare, i nemici della Germania cominciarono ad attivarsi per fare in modo che l'Italia entrasse in guerra al loro fianco; d'altronde, i motivi di contrasto che la'Italia aveva con la Francia non esistevano più, in quanto le coste nordafricane erano state già suddivise. Inoltre all'Italia avrebbe fatto molto piacere concludere le operazioni di annessione al regno di **Trento** e **Trieste**, desiderio che aveva accantonato alleandosi con l'Austria-Ungheria.
+
+### Sostenitori e contrari all'intervento in guerra
+
+A differenza degli altri stati europei, l'Italia ebbe la possibilità di riflettere con calma sul da farsi, in quanto non direttamente coinvolta nello scontro; allo stesso modo, anche l'opinione pubblica non era satura di emotività e nazionalismo, come lo era negli altri stati. Al contrario, in questo periodo si creò una vera e propria frattura che divise l'Italia in **interventisti** e **neutralisti**.
+
+#### Interventisti:
+
+- **Intellettuali democratici**, tra cui Gaetano Salvemini o Cesare Battisti. Secondo loro la guerra andava considerata come il compimento del processo di unificazione nazionale;
+
+- **Irredentisti**, ovvero coloro che volevano annettere al regno d'Italia Trento e Trieste;
+
+- **Socialisti rivoluzionari**, i quali intuirono che la partecipazione al conflitto dell'Italia avrebbe logorato le strutture sociali e politiche del paese, generando le condizioni generali per una rivoluzione. La carneficina dei loro uomini era quindi una condizione necessaria per il trionfo finale del proletariato. Tra questi si trova anche **Benito Mussolini**.
+
+- **Nazionalisti**, guidati da **Enrico Corradini**, mossi dalla volontà di trasformare l'Italia in una grande potenza. L'ideale di Corradini era quello di portare l'Italia *nazione proletaria*, a schiacciare le *nazioni borghesi*. Tuttavia, per raggiungere tale obiettivo era necessario schiacchiare *l'ignobile socialismo*. Contrario poi al parlamentarismo, riteneva che la nazione dovesse essere guidata da un *elitè* di persone, sganciando quindi i 2 ideali di **democrazia** e **nazione**.
+
+- **Gabriele D'Annunzio**, e un gruppo di intellettuali mossi dalla banalizzazione del concetto di **superuomo** nietzschano. Mossi prevalentemente da ideali nazionalisti.
+
+- **Futuristi**, i quali consideravano la guerra come uno strumento liberatore, capace di spazzare via dalla terra l'umanità in esubero. **Filippo Tommaso Marinetti** l'aveva definita *l'igiene del mondo*. 
+
+
+#### Neutralisti:
+
+- **Giovanni Giolitti**, non contrario allo scontro bellico e nemmeno al rafforzamento del prestigio nazionale (proprio per questo motivo aveva guidato la guerra in Libia); aveva tuttavia intuito che, dopo la sconfitta tedesca sul Marna, la guerra sarebbe diventata lunga ed estenuante, con un conseguente logoramento dello stato;
+
+- La **Chiesa**, contraria alla guerra sia per natura morale, sia per natura politica: l'intervento italiano avrebbe potuto portare alla sconfitta (e al crollo) dell'Austria-Ungheria, ultima grande potenza dichiaratamente cattolica.
+
+- **Socialisti riformisti**, in quanto ritenevano che la guerra, anche in caso di vittoria, avesse portato vantaggi solo ai capitalisti, mentre sui campi di battaglia sarebbero stati proprio loro a perire. Fu tuttavia una protesta senza effetti, in quanto non si mobilitarono mai effettivamente ad una rivolta contro l'interventismo.
+
+Nella primavera del '15 gli interventisti intensificarono la loro azione di propaganda, organizzando manifestazioni nelle principali città. Determinante fu il contributo di **D'Annunzio**, il quale riuscì a rendere quei raduni delle vere e proprie coreografie, che possono essere considerate come l'atto iniziale di un nuovo modo di gestire le folle e la leadership politica: il leader non è più una figura separata, ma è colui che incarna e risveglia gli ideali del popolo; immerso nella folla, è colui che si pone da guida verso l'**unica** strada che porta alla prosperità. Il risultato era una carica passionale profondissima (ai limiti del fanatismo), capace di allontanare ogni obiezione di tipo razionale. Si faceva anche largo uso di simbologie religiose.
+
+Nel marzo 1915, il ministro degli esteri italiano **Sydney Sonnino** ebbe numerosi incontri diplomatici per trattare con l'Austria-Ungheria la cessione delle terre irredente in cambio della propria neutrlità: tuttavia l'impero asburgico declinò la richiesta e, nella speranza di ottenere di più, il ministro italiano si recò a Londra il **26 aprile 1915**, firmando il patto di Londra: con tale accordo si impegnava ad entrare in guerra entro un mese al fianco della Triplice Intesa, **contro** l'Austria-Ungheria. L'accordo prevedeva la cessione all'Italia in caso di vittoria di, oltre a Trento e Trieste, anche l'Alto Adige, l'Istria, la Dalmazia e una parte delle colonie tedesche in Africa.
+
+L'idea del governo di Salandra era quindi interventista; tuttavia, c'era bisogno che il parlamento ratificasse il Patto di Londra, prima che l'Italia potesse entrare effettivamente in guerra. Alla camera però, la maggior parte dei deputati era schierata verso una posizione simil-Giolittiana e cioè, contraria alla guerra. Tale atteggiamento del parlamento venne aspramente criticato dai nazionalisti e da Mussolini stesso, che arrivò a descriverlo come *il bubbone pestifero che avvelena il sangue della nazione*: Andava eliminato.
+
+il maggio 1915, ribattezzato **maggio radioso** da D'Annunzio, fu teatro di numerosi scontri tra interventisti e neutralisti. Resosi conto della non fiducia della Camera, il 13 maggio 1915 **Salandra** diede le dimissioni, ma il re, deciso sostenitore dell'intervento, gli conferì di nuovo l'incarico. Al quel punto per il parlamento si manifestò una situazione mai vista prima: votare contro le decisioni del governo voleva significare mettersi contro alle decisioni del re, mettendone in discussione l'autorità. Pertanto, il **24 maggio 1915** il Parlamento ratificò l'entrata in guerra dell'Italia. La situazione era tutt'altro che tranquilla: mentre gli altri stati erano mossi da sentimenti forti e decisi verso il conflitto, in Italia era in atto una vera e propria guerra civile. Da sottolineare anche l'importanza della decisione del re: aveva di fatto, *scavalcato* il parlamento, abusando dei suoi poteri.
+
+Al momento dell'entrata in guerra, l'esercito italiano era guidato dal generale **Luigi Cadorna**, uomo ostinato e molto sicuro di sè, incapace di ammettere i propri errori. Sin da subito rivendicò la propria autonomia dal potere civile: egli si sentiva subordinato unicamente al re e quindi non accettava di buon grado le intromissioni del consiglio e del ministero della difesa. Inoltre, pur non avendo mai visto un campo di battaglia, non accettava nemmeno i consigli dei suoi generali, considerandosi un raffinato esperto di tattica militare. Di conseguenza, fece sin da subito licenziare un grande numero di generali. 
+
+La strategia militare di Cadorna era basata sulle cosiddette *spallate*. L'offensiva doveva essere mantenuta ad ogni costo e il nemico doveva sempre essere messo sotto pressione con una serie prolungata di attacchi massicci e potenti che avrebbero causato lo sfondamento del fronte. Tuttavia, questa tattica si era già dimostrata **anacronistica** un anno prima in Francia, in quanto semplicemente gli uomini non si scontravano contro altri uomini, ma con l'acciaio delle mitragliatrici. Ad allontare ancora di più il successo di Cadorna furono la lentezza con la quale venne dispiegato l'esercito e la mancanza di artiglieria.
+
+Per quanto riguarda il fronte, quello italiano era lungo circa 700 km e si sviluppava su 2 settori geografici molto diversi tra loro: il **Trentino** e il **Carso**. Nel primo caso si trattava di una guerra di montagna, condotta ad alta quota e in un ambiente molto ostile. Nel maggio del 1916 gli austriaci si lanciarono nella cosiddetta **spedizione punitiva**: dopo un intenso bombardamento, avanzarono di circa 20 km, dove vennero fermati. Dopo tale avvenimento, Salandra fu costretto a dimettersi e venne sostituito dall'anziano **Paolo Boselli**.
+
+Per quanto riguarda il Carso invece, la situazione era pressocché simile a quella del fronte occidentale: gli eserciti non riuscivano a sovrastarsi e le spallate di Cadorna non riuscivano ad ottenere nessun risultato. Dopo alcuni tentativi, gli italiani riuscirono ad impadronirsi di Gorizia, subendò però perdite inimmaginabili.
+
+il **28 agosto 1916** l'Italia dicharò guerra alla Germania, mentre Cadorna continuava ad accumulare perdite su perdite. Nel frattempo, il collasso dell'esercito russo permise alla Germania di spostare le sue truppe sul fronte meridionale, prima di concentrarsi all'ultimo assalto francese.
+La Germania decise quindi di assumere il controllo delle operazioni sul fronte italiano, adottando una tattica di infiltrazione e aggiramento per neutralizzare l'esercito italiano. Nonostante Cadorna fosse stato avvertito dell'imminente offensiva austriaca, non prestò fede a quelle notizie. Il **24 ottobre 1917 a Caporetto** l'esercito italiano fu colto alla sprovvista. Solo il primo giorno morirono più di 100.000 italiani. L'esercito fu costretto a indietreggiare di 140 km, fino al fiume Piave dove riuscirono a costruire una linea difensiva.
+
+Gli effetti della sconfitta di Caporetto furono devastanti: molte città si trovarono sotto dominazione austriaca: i territori occupati vennero razziati e sfruttati per i rifornimenti all'esercito asburgico, mentre un numero enorme di persone vennero uccise. Cadorna cercò di scaricare la colpa della disfatta sull'esercito vilmente ritiratosi, ma era evidente che la principale causa della sconfitta furono le sue *spallate*.L'**8 novembre 1917** il generale Cadorna venne esonerato e il comando passò ad **Armando Diaz**. 
+Nel frattempo, in campo politico, tutti guardavano con diffidenza al Parlamento, considerato incapace di gestire la situazione. Nell'opinione pubblica serpeggiava l'idea che il potere dovesse essere nelle mani di un uomo solo, determinato a resistere ad oltranza fino alla vittoria.
+
+Nel frattempo l'incarico di governo era passato nelle mani di **Vittorio Emanuele Orlando**, il quale si preoccupò sin da subito di sopperire a quelle carenze economiche che stavano attanagliando l'Italia. Dagli alleati arrivarono continuamente riserve di grano e crediti, che permisero all'Italia di risollevare la propria economia, grazie anche ad un boom vertiginoso dell'industria dell'acciaio. Diaz nel frattempo si limitò a frenare le offensive austriache, adottando una tattica puramente difensiva. 
+
+Nell'autunno del '18, Germania e Austria-Ungheria erano ormai allo sbando. Diaz ordinò quindi, il **26 ottobre 1918** l'attacco nella regione di Vittorio Veneto, sconfiggendo le truppe asburgiche.
+
+L'Italia uscì vincitrice dalla guerra, che costò però 680.000 morti e 1 milione di feriti. Dal conflitto usciva un' Italia ancora più divisa di come era entrata e inoltre, le ricompense concesse all'Italia alla conferenza di Pace furono giudicate irrisorie per il prezzo pagato. Il clima era molto caldo, e ciò avrebbe portato poi alla nascita del movimento fascista.
+
 # Rivoluzione Russa e Comunismo
 
 - **Pre prima guerra mondiale**
