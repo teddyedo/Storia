@@ -533,3 +533,44 @@ Hitler era convinto che gli ebrei stessero da secoli tramando segretamente per l
 
 Alfred Rosenberg, esule del Baltico dopo la rivoluzione russa, fu colui che fece conoscere a Hitler i *protocolli dei savi anziani di Sion*, dai quali Hitler prese ispirazione per i suoi primi discorsi in pubblico. Tuttavia, mentre in Russia l'odio per gli ebrei era di tipo religioso, nella visione hitleriana era fuso con le teorie razziste, secondo le quali esiste una razza, quella **ariana**, che possiederebbe caratteristiche superiori a quelle di tutte le altre e che quindi, avrebbe il diritto di dominarle. Solo l'ariano può portare il nome di *uomo* ed essere considerato il fondatore della cultura umana. L'ebreo invece vuole distruggere ciò che l'ariano produce, servendosi di vari strumenti, tra cui il marxismo. Gli ebrei vengono presentati quindi come esseri demoniaci, che mirano alla conquista del mondo. Per fare ciò si servono di 2 strumenti: da un lato cercano di abbassare il livello della purezza razziale del popolo che vogliono conquistare, dall'altro (in una popolazione priva ormai di ogni qualità) diffondono il marxismo. Ma se ciò fosse accaduto veramente, avrebbe significato l'estinzione della razza umana, ovvero quella ariana.
 
+
+### Hitler al potere
+
+Alle elezioni del 1928 la NSDAP prende il **2%** dei voti, perché i messaggi di Hitler non arrivavano al popolo, ora che l'economia tedesca si stava risollevando. Le cose cambiarono con la **crisi dell'ottoblre 1929** negli USA. Le conseguenze della crisi si risenterino anche in Germania. La produzione industriale cala, i disoccupati passano da **1.3 mln nel 1929 a 6 mln nel 1932**.
+
+Alle elezioni del 1930 il partito nazista prende più di 6.5 mln di voti e il 18.3%. Era sostenuto principalmente dai disoccupati e dal ceto medio. Nel 1932 arriva a **13.7 mln di voti e il 37.2%**. La sinistra non riuscì ad unirsi contro Hitler.
+
+L'odio per gli ebrei in Germania non era un fenomeno di massa, quindi il motivo che spinse molti tedeschi a votare il parito nazista era la **speranza a cui aggrapparsi per la risurrezione di una patria umiliata e disperata**. Il sistema parlamentare presente a molti tedeschi sembrava inadeguato per difendere l'onore della patria.
+
+Grazie al miglioramento dello stile di vita dei tedeschi sotto la guida di Hitler, fu percepito come il **salvatore della patria riuscendo** a convincere anche i più scettici. Inoltre grazie alle **adunate di massa** e alla propaganda riuscì a contenere l'angoscia di molti cittadini per la crisi. La promessa di Hitler era quella di seguirlo rendendo possibile la nascita del _Terzo Reich_. Il nazismo diventava così più una fede che un'ideologia politica.
+
+Il 10 gennaio 1933 **Adolf Hitler fu nominato cancelliere dal presidente della Repubblica**. Il governo appena nato era un governo di coalizione (c'erano soltanto due ministri della NSDAP). La borghesia e i grandi proprietari terrieri non avevano molto a cuore la democrazia e non erano quindi preoccupati per una possibile distruzione del sistema parlamentare (che Hitler aveva più volte auspicato in passato).
+
+L'occasione per cancellare il Parlamento si presenta con **l'incendio del _Reichstag_** (ovvero il Parlamento, il 27 febbraio 1932). Molto probabilmente l'attentato fu organizzato dagli stessi nazisti, che però diedero la colpa ai comunisti. Il 28 febbraio 1932 Hitler emana un decreto in cui **elimina ogni forma di opposizione allo Stato**. Il partito comunista viene dichiarato fuorilegge. La polizia, sulla base del principio dell'emergenza, avrebbe potuto arrestare chiunque e senza motivo. La polizia poteva inoltre spiare chiunque controllare le telefonate, disperdere le assemblee, sciogliere le associazioni e chiudere i giornali. In un colpo solo vengono calpestati tutti i diritti dell'uomo e del cittadino sanciti dalla Costituzione.
+
+Secono Joseph Goebbels, ministro della propaganda nazista, il nazionalsocialismo voleva dire mettere al centro il popolo rispetto all'individuo. Dover sacrificare l'io per il tutto, dove il tutto è la nazione. Come la bandiera comunista, quella nazista era rossa con una svastica al centro che rappresentava la luminosità e la perfezione della razza ariana. 
+
+La Costituzione non era stata abolita, ma di fatto era stata già scavalcata. Il 23 marzo 1933 Hitler propone una legge al Parlamento che, di fatto, **consegna tutti i poteri nelle mani del governo**. Solo il partito socialdemocratico votò contro. Il 14 luglio 1933 la Germania diventa uno Stato a partito unico, tutte le altre forze politiche vengono sciolte. Il processo di acquisizione del potere da parte di Hitler si concluse il 2 agosto 1934 con la morte del Presidente della Repubblica, Hitler assume così il ruolo di Presidente del Reich. 
+
+L'obiettivo principale di Hitler era quello della **difesa della purezza della razza**. In questo senso veniva dal 1933 imposta la sterilizzazione degli alcolisti e di tutti coloro che avevano malattie ereditarie. In politica estera Hitler era convinto che il popolo avrebbe raggiunto una prosperità duratura solo con la conquista dello _spazio vitale_, ovvero un impero che fosse in grado di fornire ai tedeschi tutti i mezzi necessari (materie prime, alimenti...) per lo sviluppo. Mirava sopratutto ai territori russi abitati da razze inferiori (gli slavi, guidati dai marxisti ebrei). Voleva costruire **un gigantesco impero continentale germanico**.
+
+
+All'interno della NSDAP alcuni militanti estremisti chiedevano la nazionalizzazione di tutte le imprese. Queste idee erano diffuse sopratutto tra le SA, guidate ra Röhm. Le SA erano il **braccio armato dei nazisti** che serviva per togliere di mezzo gli oppositori. Röhm sognava di trasformare le SA nel nuovo esercito tedesco. Sarebbe stato l'esercito del popolo senza più la casta dei militari aristocratici (_Junker_).
+
+Queste posizioni erano un pericolo per Hitler: Röhm aveva acquisito troppo potere e minava la fiducia del popolo nel nazismo e la fiducia dell'esercito in Hitler. Hitler aveva bisogno dello Stato Maggiore dell'esercito per un'offensiva in URSS. Così, il 30 giugno 1934 Hitler procedette con un'epurazione nel partito nazista, in cui furono uccisi Röhm e molte le SA. Le SA furono disarmate ed eliminate. Questa notte prese il nome di **notte dei lunghi coltelli**.
+
+Da quel momento presero sempre più piede le **SS**. In origine erano le guardie del corpo di Hitler. Dal 1929 erano guidate da **Heinrich Himmler** (il Reichmarschall Smith la saluta) che dal 1934 divenne capo anche della **Gestapo** (la polizia segreta di Stato, che si occupava di reprimere ogni dissenso). Himmler si mise così ad organizzare l'intero sistema dei **campi di concentramento** (costruiti fin dal 1933) dove venivano mandati gli oppositori politici. Dachau era il campo modello, e lì era apposto lo slogan _Arbeit macht frei_ che voleva dire che il lavoro rendeva liberi nel senso che permetteva la crescita della Germania. 
+
+Per essere internati non serviva una condanna, non c'era processo. Era un atto amministrativo e non giudiziario. Poteva essere internata qualsiasi persona che metteva a rischio lo Stato e il popolo. Gli internati potevano essere dei nemici da eliminare ma anche dei tedeschi da rieducare. 
+
+Le categorie di persone che venivano sistematicamente internate erano i **Testimoni di Geova** (non volevano fare il servizio militare), gli **omosessuali**, i **criminali comuni** e gli **asociali** (chi praticava vagabondaggio, alcolisti, prostitute e anche zingari). Gli ebrei non venivano internati in questa prima fase.
+
+I lager tedeschi assunsero un ruolo importante nell'economia tedesca solo a partire dal 1938. Prima non furono usati come forza lavoro a causa dell'alto numero di disoccupati. Per ridurre questo numero Hitler concesse prestiti matrimoniali (per far rinunciare il lavoro alle donne), il 27 giugno 1933 iniziò la costruzione di una grande autostrada (imoegnò molti disoccupati).
+Dal gennaio al luglio 1933 la disoccupazione calò di 1 milione di unità. **Nel 1939 si realizzò la piena occupazione**.
+
+C'è quindi un massiccio intervento dello Stato nell'economia e un pesante indebitamento pubblico. La Germania spinge il riarmo e **l'industria bellica** per risollevare l'economia e per la guerra imminente.
+La ripresa economica gravò soprattutto sugli operai (erano stati sciolti i sindacati e i salari furono congelati al 1932).
+
+Per preparsi alla guerra Hitler prepare il **piano quadriennale** di cui Göring è il responsabile. Il proposito ufficiale era quello di far fronte alla necessità dell'espansione demografica. In realtà il vero scopo era attrezzare la Germania per la guerra (conquista dello spazio vitale).
+
+Hitler era spinto in ogni cosa che faceva dalla **dottrina della razza**.
